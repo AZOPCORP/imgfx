@@ -1,1 +1,1 @@
-# [imgfx](imgfx.azopcorp.com)
+# [imgfx](http://imgfx.azopcorp.com)
